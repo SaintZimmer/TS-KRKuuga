@@ -33,16 +33,16 @@
 * **Episódio 29:** https://bit.ly/3gEOtox
 * **Episódio 30:** https://bit.ly/3xtKUac
 * 
-* **Episódio 31:** 
-* **Episódio 32:** 
-* **Episódio 33:** 
-* **Episódio 34:** 
-* **Episódio 35:** 
-* **Episódio 36:** 
-* **Episódio 37:** 
-* **Episódio 38:** 
-* **Episódio 39:** 
-* **Episódio 40:**
+* **Episódio 31:** https://bit.ly/3iQvQzm
+* **Episódio 32:** https://bit.ly/3wJrZYT
+* **Episódio 33:** https://bit.ly/3cSWcNt
+* **Episódio 34:** https://bit.ly/3zGznq3
+* **Episódio 35:** https://bit.ly/3iVGm8u
+* **Episódio 36:** https://bit.ly/3gHZPYY
+* **Episódio 37:** https://bit.ly/3gP2hLI
+* **Episódio 38:** https://bit.ly/2SK8RLy
+* **Episódio 39:** https://bit.ly/3xsSjqa
+* **Episódio 40:** https://bit.ly/3xtQ7i4
 * 
 * **Episódio 41:** 
 * **Episódio 42:** 
